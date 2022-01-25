@@ -1,4 +1,8 @@
-### Hi there 👋
+Welcome to swish0801's GitHub Page!
+
+- 💬 Discord: swish#0801
+- 📫 Email: swish0801@protonmmail.com
+- ⚡ My Site: swish0801.me
 
 <!--
 **swish0801/swish0801** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
