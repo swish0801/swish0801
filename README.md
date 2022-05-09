@@ -1,6 +1,6 @@
 Welcome to swish0801's GitHub Page!
 
-- 💬 Discord: swish#0801
+- 💬 Discord: swish#9094
 - 📫 Email: swish0801@protonmmail.com
 - ⚡ My Site: swish0801.me
 
